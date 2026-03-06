@@ -1,1 +1,2 @@
 # Foto-retratos
+Como primera providencia, deseche usted el temor de acercarse demasiado al individuo que retrata. Una fotografía con buena parte de paisaje y una figura situada medio por normal, la distancia más apropiada para retratar viene a ser de 1,15 metros, con lo que se evitan deformaciones y se produce una imagen a buen tamaño. Pero si la cámara permite cambiar el objetivo y ponerle uno de distancia focal larga, se ganará la ventaja de poder sacar el retrato a distancia doble de la arriba señalada.
